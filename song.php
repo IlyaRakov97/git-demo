@@ -28,7 +28,16 @@ I'd make…
 But now I'm insecure
 And I care what people think
 
-
+But now I'm insecure
+And I care what people think
+But now I'm insecure
+And I care what people think
+But now I'm insecure
+And I care what people think
+But now I'm insecure
+And I care what people think
+But now I'm insecure
+And I care what people think
 
 
 
