@@ -25,9 +25,6 @@ How come I'm never able to identify
 Where it's coming from?
 I'd make…
 
-But now I'm insecure
-And I care what people think
-
 
 
 
